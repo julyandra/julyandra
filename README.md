@@ -1,5 +1,4 @@
-- 🍎 oi, eu sou @julyandra
-- 🧚‍♂️ eu estou enteressada em desenho
-- ☯️ eu estou aprendendo pensamento c.
-- 🏳️‍🌈 me encontre no instagram @_julyandra_
-
+-olá sou Julyandra Mayla
+-tenho 16 anos
+-moro em Curitiba,Pr 
+-estou em busca de novos conhecimentos e  expe proficionais e pessoais
